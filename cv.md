@@ -8,7 +8,7 @@ I have good interpersonal skills, am an want to study and learn something new. I
 
 >## Contacts
 * Email:
-    * axel__axel@mail.com
+    * axel__axel@mail.ru
 * Discord:
     * Gary (@Gerysson)
 
