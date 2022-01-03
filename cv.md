@@ -4,7 +4,7 @@
 >## About me
 
 
-I have good interpersonal skills, am an want to study and learn something new. I like lead active and healthy lifestyle, fond of running, comic book movies and listen to music of different genres. Once I wanted to enter the specialty of a programmer, but I could not. Now when I look at fellow programmers, I tell them:
+I'm communicative person, I like to study and learn new things. I lead active and healthy lifestyle, I like running, comics-movies and music of different genres. I wanted to go to university as software developer, but I didn't succeed. Now when I look at developers, I tell them:
 
 
 > I used to be an adventurer like you, then i took an arrow in the knee.
